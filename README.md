@@ -1,0 +1,6 @@
+![Screenshot (26)](https://github.com/sudheerbabud/Tasty-Foods-Restaurant/assets/143945641/7cbdc710-f1b3-4981-aa99-d622c08475ff)
+![Screenshot (27)](https://github.com/sudheerbabud/Tasty-Foods-Restaurant/assets/143945641/c788e2dc-3e82-4b3f-b2c5-df3b376bf292)
+![Screenshot (28)](https://github.com/sudheerbabud/Tasty-Foods-Restaurant/assets/143945641/a06a443c-5022-43ed-b33f-e9dc9a8bd081)
+![Screenshot (29)](https://github.com/sudheerbabud/Tasty-Foods-Restaurant/assets/143945641/0a54795b-95e9-4239-8761-669bc6080dad)
+![Screenshot (30)](https://github.com/sudheerbabud/Tasty-Foods-Restaurant/assets/143945641/568bb931-354f-4999-9c82-d3935eb667a0)
+![Screenshot (31)](https://github.com/sudheerbabud/Tasty-Foods-Restaurant/assets/143945641/5be85f84-9103-44c8-a510-8a0f6a71fe52)
